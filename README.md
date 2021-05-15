@@ -1,4 +1,4 @@
- I'm FAROOK JAMAL 
+ I'm FAROOK JAMAL 👋 
 
 - 🔭 I’m currently Self Employed
 - 🌱 I’m currently learning ...
