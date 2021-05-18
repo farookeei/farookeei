@@ -2,6 +2,7 @@
 
 - 🔭 I’m currently Self Employed
 - 🌱 I’m currently learning ...
+- 🌱 I’love to teach 
 - 💬 Ask me about ... intellectual thoughts
 
 <!--
